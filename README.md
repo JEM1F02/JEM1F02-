@@ -6,4 +6,4 @@ MEU NOME É ALICE :)
 SÓ PORQUE UMA LHE ESPETOU
             (PEQUENO PRÍNCIPE)
 
-!https://media1.tenor.com/m/hamlMkblKjMAAAAC/alone-twinkleluj.gif
+! (https://media1.tenor.com/m/hamlMkblKjMAAAAC/alone-twinkleluj.gif)
